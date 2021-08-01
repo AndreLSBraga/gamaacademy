@@ -1,0 +1,1 @@
+O curso está sendo de grande aprendizado até o momento, muitas coisas novas, novas dificuldades mas caminhando muito importante para o aprendizado
